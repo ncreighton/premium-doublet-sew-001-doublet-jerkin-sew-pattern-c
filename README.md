@@ -1,0 +1,2 @@
+# premium-doublet-sew-001-doublet-jerkin-sew-pattern-c
+Tired of losing pattern notes in a sea of fabric scraps and paper? Your doublet &amp; jerkin sewing projects deserve a digital craft lab that keeps every stitch organized, from pattern draft to final fitting.  This Notion template transforms your sewing chaos into a structured digital workshop, specifically designed for doublet and jerkin construction.
